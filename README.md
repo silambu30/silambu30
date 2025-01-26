@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on web development projects, coding challenges, and open-source contributions.
 
-📫 Reach me at silambu30@example.com
+📫 Reach me at silambarasandon6@gmail.com
 
 ⚡ Fun fact: I enjoy solving puzzles and gardening my garden in my free time.
 
